@@ -1,1 +1,0 @@
-# ambotlangnimo.github.io
